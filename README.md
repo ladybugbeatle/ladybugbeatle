@@ -1,7 +1,8 @@
 
 <pre> <p align="center"> 
 
-  <img width="445" height="217" alt="image" src="https://github.com/user-attachments/assets/d0a47b18-7162-46c1-ba2d-c572b99b29ba" />
+<img width="1212" height="520" alt="image" src="https://github.com/user-attachments/assets/9ae82c73-caa6-41d3-b916-0fafe82f85c0" />
+
 
   madi / yellow
   she/her 
