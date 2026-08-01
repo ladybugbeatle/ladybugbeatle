@@ -12,6 +12,9 @@
   she/her 
   guns 'n roses lover 
   yellow/edd fictkin
+(INT BLUES!!!! PLS PLS PLS)
 
-  ❀⋆.ೃ࿔*:･
+  <img width="772" height="520" alt="image" src="https://github.com/user-attachments/assets/0a475889-328b-472b-8e90-027f640716f2" />
+𐚁
+ 
  </pre>
