@@ -14,7 +14,7 @@
   yellow/edd fictkin
 (INT BLUES!!!! PLS PLS PLS)
 𐚁
-  <img width="272" height="210" alt="image" src="https://github.com/user-attachments/assets/0a475889-328b-472b-8e90-027f640716f2" />
+  <img width="272" height="110" alt="image" src="https://github.com/user-attachments/assets/0a475889-328b-472b-8e90-027f640716f2" />
 𐚁
  
  </pre>
