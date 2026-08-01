@@ -1,5 +1,9 @@
-https://i.pinimg.com/1200x/a1/2f/60/a12f6039b570573249ccbb455a9eca1d.jpg
-<pre> <p align="center"> madi / yellow
+
+<pre> <p align="center"> 
+
+  <img width="445" height="217" alt="image" src="https://github.com/user-attachments/assets/d0a47b18-7162-46c1-ba2d-c572b99b29ba" />
+
+  madi / yellow
   she/her 
   guns 'n roses lover 
   yellow/edd fictkin
