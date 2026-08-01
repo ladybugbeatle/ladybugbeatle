@@ -1,5 +1,5 @@
 <pre> <p align="center"> madi / yellow
-she/her 
+  she/her 
   guns 'n roses lover 
   yellow/edd fictkin
  </pre>
