@@ -1,3 +1,5 @@
-<pre> <p align="center"> this is some text
-im cute and fat >///<
-rue was here. hello madi! </pre>
+<pre> <p align="center"> madi / yellow
+she/her 
+  guns 'n roses lover 
+  yellow/edd fictkin
+ </pre>
