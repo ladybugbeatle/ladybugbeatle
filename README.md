@@ -9,9 +9,9 @@
 
 
   madi / yellow
-  she/her 
+  she/her
   guns 'n roses lover 
-  yellow/edd fictkin
+  yellow fictkin
 (INT BLUES!!!! PLS PLS PLS)
 𐚁
   <img width="272" height="125" alt="image" src="https://github.com/user-attachments/assets/0a475889-328b-472b-8e90-027f640716f2" />
