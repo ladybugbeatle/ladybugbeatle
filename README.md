@@ -3,7 +3,7 @@
 
 ❀⋆.ೃ࿔*:･
 
-<img width="950" height="641" alt="image" src="https://github.com/user-attachments/assets/c4c662d4-b328-45de-b84d-b61a9135d39a" />
+<img width="750" height="441" alt="image" src="https://github.com/user-attachments/assets/c4c662d4-b328-45de-b84d-b61a9135d39a" />
 
 
 ❀⋆.ೃ࿔*:･
