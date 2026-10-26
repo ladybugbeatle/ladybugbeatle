@@ -3,18 +3,21 @@
 
 ❀⋆.ೃ࿔*:･
 
-<img width="350" height="150" alt="image" src="https://github.com/user-attachments/assets/4b31f5a1-909d-41d8-aaab-ef625173aebf" />
+<img width="950" height="641" alt="image" src="https://github.com/user-attachments/assets/c4c662d4-b328-45de-b84d-b61a9135d39a" />
+
 
 ❀⋆.ೃ࿔*:･
 
 
-  madi / yellow
+  madi / paulie
   she/her
-  guns 'n roses lover 
-  yellow fictkin
-(INT BLUES!!!! PLS PLS PLS)
-𐚁
-  <img width="272" height="125" alt="image" src="https://github.com/user-attachments/assets/0a475889-328b-472b-8e90-027f640716f2" />
-𐚁
+  mcharrison - mclennon lover
+  paul fictkin
+(INT BEATLES!!!! PLS PLS PLS)
+
+❀⋆.ೃ࿔*:･
+  
+ <img width="1123" height="923" alt="image" src="https://github.com/user-attachments/assets/3f286940-2569-492c-8da1-277fca466eb8" />
+
  
  </pre>
